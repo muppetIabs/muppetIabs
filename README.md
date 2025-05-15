@@ -1,8 +1,8 @@
- <p align="center" >𓍯𓂃
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Mouse+Memoirs&size=30&pause=1000&color=98F7B8&width=435&lines=One+more+shot%2C+Kermit.;The+muppets+are+unshakeable!)](https://git.io/typing-svg)  <p align="center" >
   
-<p align="center"> <img src=https://files.catbox.moe/dzhgvw.png /></a>
+<p align="center"> <img src=https://files.catbox.moe/zqswrv.png /></a>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Cormorant+Garamond&size=30&letterSpacing=0.2rem&pause=1000&color=663C1F&width=435&lines=There+is+so+much+more+to+you.;More+than+you+know.;Not+just+pain+and+anger.+;There+is+good+too%2C+I+felt+it.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Mouse+Memoirs&size=30&pause=1000&color=7BC5F7&width=435&separator=%3C&lines=Someday+we'll+find+it%2C%3Cthe+rainbow+connection.%3CThe+lovers%2C+the+dreamers;%3Cand+me.)](https://git.io/typing-svg)
 <p align="center"
 
 
