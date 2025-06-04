@@ -1,8 +1,12 @@
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Mouse+Memoirs&size=30&pause=1000&color=98F7B8&width=435&lines=One+more+shot%2C+Kermit.;The+muppets+are+unshakeable!)](https://git.io/typing-svg)  <p align="center" >
-  
-<p align="center"> <img src=https://files.catbox.moe/1u732j.webp /></a>
+  ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center" > 
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=WDXL+Lubrifont+TC&pause=1000&color=E18343F8&background=BDB3863B&multiline=true&width=435&lines=I+had+this+innate+desire+to+kiss+him%2C;I+wondered+if+his+lips+tasted+of+sulfur.)](https://git.io/typing-svg) </p> 
+   ⠀
+<p align="center"> <img src=https://files.catbox.moe/zt2epl.png /></a>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Mouse+Memoirs&size=30&pause=1000&color=7BC5F7&width=435&separator=%3C&lines=Someday+we'll+find+it%2C%3Cthe+rainbow+connection.%3CThe+lovers%2C+the+dreamers;%3Cand+me.)](https://git.io/typing-svg)
-<p align="center"
+
+  ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
+  ![](https://komarev.com/ghpvc/?username=beaksen&color=FF9B45&style=flat&label=Visitors)
+</p>  ⠀⠀
+
 
 
